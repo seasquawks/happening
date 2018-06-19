@@ -1,2 +1,0 @@
-# happening
-Event Planning
